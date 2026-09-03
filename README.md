@@ -18,6 +18,6 @@
 
 **Журналы:**
 
-[**1 подгруппа**](https://docs.google.com/spreadsheets/d/1838yyNkzDCRhauH5WaUD3cUU_NQeGcN-cCcxE73tHZc/edit?usp=sharing)
+[**1 подгруппа**](https://docs.google.com/spreadsheets/d/1Z7xNqhFARoo7hfgBwDbeu98TRDBZLW9T8IMATIP0CDE/edit?usp=sharing)
 
- [**2 подгруппа**](https://docs.google.com/spreadsheets/d/1JLAFAU_KJFLC-nij5L5klYeWEaac4C7BewJi0T7Au2g/edit?usp=sharing)
+ [**2 подгруппа**](https://docs.google.com/spreadsheets/d/1kSq9RZ7glCw_dtRti7Q8Kqo8WRCKvsyTSTIhSxC9dcc/edit?usp=sharing)
